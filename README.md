@@ -1,2 +1,2 @@
 # Ecomerce
-what u wa
+what u was
